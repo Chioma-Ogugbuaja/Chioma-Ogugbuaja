@@ -4,6 +4,10 @@
 
 **💞️ I’m looking to connect with fellow Data lovers and Enthusiast.**
 
-**🥅 Goals: Improve on my technical skills and continue to add value to any Organization I find myself in.**
+**🥅 2023 Goals: Improve on my technical skills and continue to add value to any Organization I find myself in.**
 
 **📫 How to reach me chiomaogugbuaja01@gmail.com, https://www.linkedin.com/in/chioma-ogugbuaja-4040511a6**
+
+**⚡ Fun fact: I love watching movies at my free time.**
+
+**😄 Pronouns: she/her**
