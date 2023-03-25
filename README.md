@@ -6,4 +6,4 @@
 
 #**🥅 Goals: Improve on my technical skills and continue to add value to any Organization I find myself in.**
 
-#📫 How to reach me chiomaogugbuaja01@gmail.com, https://www.linkedin.com/in/chioma-ogugbuaja-4040511a6
+**📫 How to reach me chiomaogugbuaja01@gmail.com, https://www.linkedin.com/in/chioma-ogugbuaja-4040511a6**
